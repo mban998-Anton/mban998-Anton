@@ -1,4 +1,4 @@
-//English Translation  translate indonesia di bawahhh.
+//English Translation  translate indonesia di bawahhh..
 👋 Hi, I’m @mban998-Anton
 
 👀 I run a service on Twitter (@mban998) and Telegram (@mban998), and this is my portfolio for thesis, papers, scientific papers, research papers, and other written works.
